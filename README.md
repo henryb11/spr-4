@@ -4,6 +4,6 @@
 
 Hello Yulia, 
 
-I threw this assignment together quite quickly this time, I'm sorry it is rushed.
+Assignment finished.
 
-Please let me know the things I need to improve and ill improve on them immediately.
+Thanks for your help!
